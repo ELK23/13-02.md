@@ -28,7 +28,7 @@
 ![{89BE4913-47C6-4DA2-8BFF-3B8E1A36C1D0}](https://github.com/user-attachments/assets/bac303dc-5710-4d13-a242-b552b3cf92d3)
 ![{F738A9F7-DC21-47B1-8074-135C085ACDF0}](https://github.com/user-attachments/assets/b109629e-0e82-428f-9a23-f981ca599185)
 
-![{8ECD0B55-B80A-4F71-97D4-0A6685D1DC20}](https://github.com/user-attachments/assets/9923ca52-2a74-461e-89a9-0efa3550ca87)
+
 ![image](https://github.com/user-attachments/assets/773e0842-dc19-4662-83fb-cf2739fec897)
 
 
